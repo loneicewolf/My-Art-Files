@@ -1,6 +1,13 @@
 # DAY 4 (1st october)
 - https://bsky.app/profile/did:plc:37lcyqfy4d5r25jvgtabe5kn/post/3m25mwd4dhk26
 
+music  i listened to
+- https://www.youtube.com/watch?v=ACbskcDasNU&list=RDACbskcDasNU&start_radio=1
+- https://www.youtube.com/watch?v=TJxKrqIez1o&list=RDTJxKrqIez1o&start_radio=1
+- https://www.youtube.com/watch?v=0wWL-zIkoF8&list=RD0wWL-zIkoF8&start_radio=1
+- https://www.youtube.com/watch?v=GgTTtzmq1eg&list=RDGgTTtzmq1eg&start_radio=1
+- https://www.youtube.com/watch?v=YtQwTY0EVAI&list=RDYtQwTY0EVAI&start_radio=1
+
 
 <img width="701" height="659" alt="image" src="https://github.com/user-attachments/assets/bb7aa0aa-68af-4c90-aad7-eb9f946c1773" />
 
