@@ -4,4 +4,5 @@ list of days:
 - [x] 2
 - [x] 3
 - [x] 4 (october first! today!)
+- [x] 2ND octobber (5th day)
 - [ ] 
