@@ -33,3 +33,9 @@ music  i listened to
 
 # but ofc I am addicted to art now, (motivation spike?) so I carried on, and it got slightly worse (here i took a break)
 <img width="688" height="455" alt="image" src="https://github.com/user-attachments/assets/8e4528da-670d-4442-b07c-f1b6a14d0ca5" />
+
+
+-----
+-----
+# DAY 5
+<img width="569" height="667" alt="image" src="https://github.com/user-attachments/assets/3dbf8ced-4732-49fa-a3a5-4c5bcdaffd9b" />
