@@ -39,3 +39,7 @@ music  i listened to
 -----
 # DAY 5
 <img width="569" height="667" alt="image" src="https://github.com/user-attachments/assets/3dbf8ced-4732-49fa-a3a5-4c5bcdaffd9b" />
+
+<img width="590" height="686" alt="image" src="https://github.com/user-attachments/assets/9180e16f-1185-4049-8edf-8271a1e4601a" />
+
+<img width="606" height="630" alt="image" src="https://github.com/user-attachments/assets/258ddb86-c1fa-4ac4-953d-2e20b3f450f9" />
