@@ -7,5 +7,6 @@ Sun. 5th, October, 2025, department: nothing, let's check at the art lmao.
 <img width="1266" height="678" alt="image" src="https://github.com/user-attachments/assets/37e9d1ba-e5e1-4599-8d9c-e478456bcd65" />
 <img width="1296" height="685" alt="image" src="https://github.com/user-attachments/assets/0918d50f-90b0-44bc-8f43-cdf64393dde5" />
 <img width="1097" height="747" alt="image" src="https://github.com/user-attachments/assets/3b13953e-7116-4f48-b2ae-ab2c5d7b7b6c" />
+<img width="1427" height="794" alt="image" src="https://github.com/user-attachments/assets/17562be2-65d3-4627-b238-5d8c52ad0281" />
 
 # sleeping helps and taking smaller breaks helps as well, being in good mood? i think it helps a lot
